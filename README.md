@@ -36,3 +36,4 @@ dr.akhvir singh khaana (CML) delivered on insightful lecture focused on goal set
 
 dr.jasvir singh grewal ,NSS incharde , delievered on engaging and motivational scession scessioon encourging students to become active NSS volunteers. he inspired students to participate in social service and welfare activities. the scession also included impactful vedioclips showing the harmful effects of plastic waste in animal life.to make the scession more lively,students performed on comedy act,adding an entertaining and memorable touch to the experience 
 
+![Image](https://github.com/user-attachments/assets/769425f4-241e-4355-b46b-07e691382cdf)
