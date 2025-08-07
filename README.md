@@ -35,4 +35,4 @@ an inspiring expert lecture was delivered by brigadier P.S cheema in the auditor
 dr.akhvir singh khaana (CML) delivered on insightful lecture focused on goal setting and career planning. he guided students on how to set clear goals and preapare for internships , including oppoutunities in companies outside india . he also introducedb the "swayam" website,where students can take certified courses and exams to enhance their skills and improve their chances of securing internships and future placements.
 
 dr.jasvir singh grewal ,NSS incharde , delievered on engaging and motivational scession scessioon encourging students to become active NSS volunteers. he inspired students to participate in social service and welfare activities. the scession also included impactful vedioclips showing the harmful effects of plastic waste in animal life.to make the scession more lively,students performed on comedy act,adding an entertaining and memorable touch to the experience 
-
+Image](https://github.com/user-attachments/assets/8317673d-a74d-48f6-9528-7f91d9c424aa)
