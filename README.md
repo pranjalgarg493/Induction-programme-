@@ -8,7 +8,7 @@ Pranjal garg, electronics (ECE)
 the chief guest S maheshinder singh garewal,ex-cabinet minister and senior trustee of Nankana Sahib education trust inspire student with his words on disipline,purpose and 
 founding vision of the collage.
 
- We all learned from this lesson 'a bridge towards professional success by teacher guidance and student confidence ' A day full of insipration , tradition and new beginnings.
+ We all learned from this lesson 'a bridge towards professional success by teacher guidance and student confidence ' A day full of insipration , tradition and new beginnings.![Image](https://github.com/user-attachments/assets/5ff1889e-ffc5-4cb5-9bc7-5f6d83e5d44d)
  # day 2 (1-08-2025)
  a new opportunity arose thanks to dr. arvind dhingra . he helped our behaviour as we should be confident for interacting with others to boost our confidence and learn from them. he asked 7 boys and 7 girls to comeup for stage . we played a team strategy game and introduced ourselves. this is playing by 3 times again .
 
