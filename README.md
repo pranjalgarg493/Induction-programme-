@@ -3,7 +3,7 @@ Pranjal garg, electronics (ECE)
 # day 1(30-07-2025)
  my first day at gndec started with all branches (ece,crai,me,ce,ee)going to gurudwara sahib for shabad kirtan . after that the college organised the breakfast after kirtan then we take refreshment and then we assemble at auditorium . the atmosphere was very calm and beautiful .after waiting the host invited the first speaker,harpreet mam(hod of applied sciences) come on stage and guide us for future planning and her lecture is very useful for us. after her lecture,we feel already a part of gndec family. 
 
- later on,our principal sir dr. sehijpal sing . They motivated us and gave uws advice about for taking good decesion in future . So we make good personalities and establishing the institute and the director of NSET introduced us to history and emphaizing 68 years for shaping brillant minds.
+ later on,our principal sir dr. sehijpal singh . They motivated us and gave uws advice about for taking good decesion in future . So we make good personalities and establishing the institute and the director of NSET introduced us to history and emphaizing 68 years for shaping brillant minds.
 
 the chief guest S maheshinder singh garewal,ex-cabinet minister and senior trustee of Nankana Sahib education trust inspire student with his words on disipline,purpose and 
 founding vision of the collage.
